@@ -1,1 +1,1 @@
-# stuey
+# study
